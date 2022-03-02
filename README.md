@@ -1,3 +1,5 @@
+# Happy Wednesday Y'all!
+
 readme
 update
 update2
